@@ -1,1 +1,0 @@
-Venda de canetas roubadas
